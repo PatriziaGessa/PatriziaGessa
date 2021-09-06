@@ -1,4 +1,4 @@
-## Ciao to everyone👋 
+## Ciao to everyone👋 :smiley:
 ### Here is what I'm working on!
 
 - 🌱 I’m currently learning ... Back-End
