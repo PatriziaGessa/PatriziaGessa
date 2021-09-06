@@ -5,4 +5,4 @@
 - 🤔 I’m looking for help with ...
 - 💬 Ask me about ... Anything
 - 📫 How to reach me: ... [LinkedIn](https://www.linkedin.com/in/patrizia-gessa/)
-- ⚡ Fun fact: ... I am older than I look
+- ⚡ Fun fact: ... I'm like a fine wine, I get better with age :wink:
